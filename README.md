@@ -1,5 +1,5 @@
 <div align="center">
-<h1>🍁  ❤ Whatsapp Bot By Ravindu Manoj ❤  🍁</h1>
+<h1>🍁  ❤ Whatsapp Bot By ᴍɪʜͥɪʀͣᴀͫɴɢᴀ⁶⁴⁴¹ ⃟✦⃝̮̮👑🔨🕵🏻‍♂️ ❤  🍁</h1>
 </div>
 
 
