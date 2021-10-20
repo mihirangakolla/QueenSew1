@@ -2,7 +2,7 @@
 
 
 <h2>😤Go away, the fox who steals the programmer's intelligence 😂😡</h2>
-#Programmer Ravindu Manoj...
+#Programmer ᴍɪʜͥɪʀͣᴀͫɴɢᴀ⁶⁴⁴¹ ⃟✦⃝̮̮👑🔨🕵🏻‍♂️...
 
 <div align="center">
 <img src="https://github.com/Sew01RaviduManoj01KingAndQueen/imagehosting/blob/00aa7f2685f0114a2111f57149d8f0a27b2481c9/VID-20210724-WA0003.gif" />
@@ -31,9 +31,9 @@
 
 1st bot
 
-*✨Sew Queen Whatsapp Bot ✨★➳*
+*✨ᴍɪʜͥɪʀͣᴀͫɴɢᴀ⁶⁴⁴¹ ⃟✦⃝̮̮👑🔨🕵🏻‍♂️ Public Whatsapp Bot ✨★➳*
 
-❯❯❯added new ttp list ==> .sewttp
+❯❯❯added new ttp list ==> .mttp
 
 ❯❯❯new unit convart system ==> .unit 1 kg g / .bitunit 1 Gb Mb
 
@@ -55,13 +55,13 @@
 
 ❯❯❯spotify download ==> .spotyfi 
 
-❯❯❯new text maker list ==> .sew3maker (adding 100+ new text to image soonly)
+❯❯❯new text maker list ==> .effectimg1 (adding 100+ new text to image soonly)
 
-❯❯❯dual bot mod ==> .kingraviya && .queensew or .setvar BOT_MODE:kingraviya && .setvar BOT_MODE:queensew
+❯❯❯dual bot mod ==> .kingmahasona && .queenmohini or .setvar BOT_MODE:kingmahasona && .setvar BOT_MODE:queenmohini
 
 2nd Bot
 
-*✨King Raviya 18 + whatsapp bot ✨★➳*
+*✨King Mahasona 18 + whatsapp bot ✨★➳*
 
 ❯❯❯phub search ==> .pornhub your text
 
@@ -81,7 +81,7 @@
 
 *Sew Queen Whatsapp Bot★ ➳*
 
-❯❯❯නව ttp ලැයිස්තුව එකතු කරන ලදි ==> .sewttp
+❯❯❯නව ttp ලැයිස්තුව එකතු කරන ලදි ==> .mttp
 
 ❯❯❯නව ඒකක පරිවර්තන ගැන්වීමේ පද්ධතිය ==> .unit 1 kg  g / .bitunit 1 Gb Mb
 
@@ -103,13 +103,13 @@
 
 ❯❯❯spotify බාගැනීම ==> .spotyfi
 
-❯❯❯නව ලෝගො මේකර් ලැයිස්තුව ==> .sew3maker (ඉක්මනින් පින්තූරයට නව පෙළ 100+ එකතු කිරීම)
+❯❯❯නව ලෝගො මේකර් ලැයිස්තුව ==> .effectimg1 (ඉක්මනින් පින්තූරයට නව පෙළ 100+ එකතු කිරීම)
 
-❯❯❯ද්විත්ව බොට් මොඩ් (බොට්ව මාරු කිරීම සදහා යොදා ගන්න ) ==> .kingraviya && .queensew
+❯❯❯ද්විත්ව බොට් මොඩ් (බොට්ව මාරු කිරීම සදහා යොදා ගන්න ) ==> .kingmahasona && .queenmohini
 
 2 වෙනි බොට් 
 
-*King Raviya 18 + වට්ස්ඇප් බොට් ★ ➳*
+*King Mahasona 18 + වට්ස්ඇප් බොට් ★ ➳*
 
 ❯❯❯pornhub සෙවුම ==> .pornhub your text
 
